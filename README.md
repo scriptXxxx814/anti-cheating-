@@ -1,1 +1,1 @@
-# anti-cheating-
+# anti-cheat
